@@ -6,3 +6,6 @@ i love 🏐, 🍕, 🏃
 
 i love 🐱, 🍫, 
 i love 🍎, 🚗
+
+seguimos añadiendo lineas 
+i love 👪, 🐈
