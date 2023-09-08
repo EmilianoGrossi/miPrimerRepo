@@ -10,5 +10,5 @@ i love 🍎, 🚗
 seguimos añadiendo lineas 
 i love 👪, 🐈
 
-añadiendo el pull
+añadiendo el pull y push
 y lineas 
