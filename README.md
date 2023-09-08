@@ -11,4 +11,4 @@ seguimos añadiendo lineas
 i love 👪, 🐈
 
 añadiendo el pull y push
-y lineas 
+y lineas en vsc
